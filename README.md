@@ -1,0 +1,1 @@
+# wqrpayment.github.io
